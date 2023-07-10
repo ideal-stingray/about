@@ -5,6 +5,11 @@ call me sphere: mid-20s, they/them pronouns, Professional Robot Torturer.  queer
 
 ## on other websites
 
+ao3: [optimal_stingray](https://archiveofourown.org/users/optimal_stingray)
+* naruto meta
+* naruto fic, mostly set in my [Hinataverse AU](https://archiveofourown.org/series/2600881) -- you don't need to know much, if anything, about naruto to read this; after a decade plus of croisoning in my brain stew it's only loosely attached to "canon", so it's equally incomprehensible either way
+* possibly someday, eventually, there will be some scum villain fic
+
 tumblr (main): [gender-trash](https://gender-trash.tumblr.com)
 * personal blogging
 * programming/roboticsposting
@@ -14,7 +19,7 @@ tumblr (main): [gender-trash](https://gender-trash.tumblr.com)
 tumblr (danmei sideblog): [mu-qingfang-stan-account](https://mu-qingfang-stan-account.tumblr.com)
 * svsss main; includes mxtx, 2ha/yuwu, devil venerable, misvil, and Other Small Fandoms of danmei novels i wish more people would read
 * reblog-heavy
-* i will attempt to tag spoilers for seven seas licensed novels from content that the 7s novels haven't gotten to but i will probably forget. sorry
+* i will attempt to tag spoilers (for english-licensed novels) for content that the official english releases haven't gotten to, but i will probably forget. sorry
 * however, i've committed to maintaining a consistent category tag for each cnovel/fandom, so blacklist at will
 
 tumblr (naruto/fic sideblog): [trans-girl-uchiha-itachi](https://trans-girl-uchiha-itachi.tumblr.com)
