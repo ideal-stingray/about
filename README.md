@@ -22,11 +22,17 @@ tumblr (naruto/fic sideblog): [trans-girl-uchiha-itachi](https://trans-girl-uchi
 * reblog-light and generally low-traffic
 * naruto reblogs not related to my fic or to itachi will still go on gender-trash
 
-[TODO: list other social media websites --- although frankly if you only follow me on tumblr you are not missing much of anything; it's my home and i'm bad at crossposting.]
+twitter (danmei retweets, VERY occasional personal posts): [@optimizedsphere](https://twitter.com/optimizedsphere)
+
+places where i've made an account i don't do much with:
+* cohost [@ideal-stingray](https://cohost.org/ideal-stingray)
+* plurk [@optimizedsphere](https://www.plurk.com/optimizedsphere)
+
+one day, perhaps, i will achieve total cosmic harmony and use the same username everywhere.  today is NOT that day.
 
 ## contact info
 
 email: optimizedsphere@gmail.com, ideal-stingray@protonmail.com
 discord: ideal-stingray#0363
 
-you can also reach me via tumblr dm, carrier pigeon, or screaming into the void
+you can also reach me via tumblr dm, carrier pigeon, or screaming into the void!
