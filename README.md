@@ -32,6 +32,7 @@ twitter (danmei retweets, VERY occasional personal posts): [@optimizedsphere](ht
 places where i've made an account i don't do much with:
 * cohost [@ideal-stingray](https://cohost.org/ideal-stingray)
 * plurk [@optimizedsphere](https://www.plurk.com/optimizedsphere)
+* neocities [optimizedsphere](https://optimizedsphere.neocities.org)
 
 one day, perhaps, i will achieve total cosmic harmony and use the same username everywhere.  today is NOT that day.
 
