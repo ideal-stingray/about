@@ -39,6 +39,6 @@ one day, perhaps, i will achieve total cosmic harmony and use the same username 
 ## contact info
 
 email: optimizedsphere@gmail.com, ideal-stingray@protonmail.com
-discord: ideal-stingray#0363
+discord: ~~ideal-stingray#0363~~ optimizedsphere
 
 you can also reach me via tumblr dm, carrier pigeon, or screaming into the void!
