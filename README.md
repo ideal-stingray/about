@@ -29,11 +29,14 @@ tumblr (naruto/fic sideblog): [trans-girl-uchiha-itachi](https://trans-girl-uchi
 
 twitter (danmei retweets, VERY occasional personal posts): [@optimizedsphere](https://twitter.com/optimizedsphere)
 
+mastodon (general fandom): [@trans_girl_uchiha_itachi@fanglitch.space](https://fanglitch.space/@trans_girl_uchiha_itachi)
+
+dreamwidth (general fandom and occasional personal posts): [ideal_stingray](https://ideal-stingray.dreamwidth.org)
+
 places where i've made an account i don't do much with:
 * cohost [@ideal-stingray](https://cohost.org/ideal-stingray)
 * plurk [@optimizedsphere](https://www.plurk.com/optimizedsphere)
 * neocities [optimizedsphere](https://optimizedsphere.neocities.org)
-* dreamwidth [ideal_stingray](https://ideal-stingray.dreamwidth.org)
 
 one day, perhaps, i will achieve total cosmic harmony and use the same username everywhere.  today is NOT that day.
 
