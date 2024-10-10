@@ -27,6 +27,8 @@ tumblr (naruto/fic sideblog): [trans-girl-uchiha-itachi](https://trans-girl-uchi
 * reblog-light and generally low-traffic
 * naruto reblogs not related to my fic or to itachi will still go on gender-trash
 
+last.fm: [optimal_sphere](https://last.fm/user/optimal_sphere)
+
 twitter (danmei retweets, VERY occasional personal posts): [@optimizedsphere](https://twitter.com/optimizedsphere)
 
 mastodon (general fandom): [@trans_girl_uchiha_itachi@fanglitch.space](https://fanglitch.space/@trans_girl_uchiha_itachi)
@@ -34,7 +36,7 @@ mastodon (general fandom): [@trans_girl_uchiha_itachi@fanglitch.space](https://f
 dreamwidth (general fandom and occasional personal posts): [ideal_stingray](https://ideal-stingray.dreamwidth.org)
 
 places where i've made an account i don't do much with:
-* cohost [@ideal-stingray](https://cohost.org/ideal-stingray)
+* cohost [@ideal-stingray](https://cohost.org/ideal-stingray) (RIP)
 * plurk [@optimizedsphere](https://www.plurk.com/optimizedsphere)
 * neocities [optimizedsphere](https://optimizedsphere.neocities.org)
 * storygraph [@optimizedsphere](https://app.thestorygraph.com/profile/optimizedsphere)
