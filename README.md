@@ -35,6 +35,8 @@ mastodon (general fandom): [@trans_girl_uchiha_itachi@fanglitch.space](https://f
 
 dreamwidth (general fandom and occasional personal posts): [ideal_stingray](https://ideal-stingray.dreamwidth.org)
 
+bluesky (general fandom): [@optimizedsphere.bsky.social](https://bsky.app/profile/optimizedsphere.bsky.social)
+
 places where i've made an account i don't do much with:
 * cohost [@ideal-stingray](https://cohost.org/ideal-stingray) (RIP)
 * plurk [@optimizedsphere](https://www.plurk.com/optimizedsphere)
